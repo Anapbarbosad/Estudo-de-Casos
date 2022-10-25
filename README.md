@@ -35,7 +35,7 @@ Link para o [canvas](https://next.canvanizer.com/canvas/rKMFqxGsDR228)
 
   
 
-Link para o [video](www.youtube.com)
+Link para o [video](https://drive.google.com/file/d/1R1Ix0YaKsUD3hIGFxE-L5Gq_dkExZ-nL/view?usp=sharing)
 
   
 
